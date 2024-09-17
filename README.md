@@ -1,1 +1,0 @@
-# FLASHCARD-3-ANO
